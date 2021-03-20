@@ -11,15 +11,6 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
-- 😄 Pronouns: ...asdasdasd
+- 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-asdasdasd
-asdasdasd
-asdasdasd
-asdasdasd
-asdasdasd
-asdasdasd
-asdasdasd
-asdasdasd
-asdasdasd
